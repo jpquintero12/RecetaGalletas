@@ -14,3 +14,5 @@
 - Moldes para galletas
 - Batidora
 - Papel mantequilla
+- Delantal para cocina
+- Tazas y cucharas para medir
