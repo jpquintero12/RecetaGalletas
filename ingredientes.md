@@ -3,7 +3,7 @@
 - 1 taza de mantequilla ( 180 gramos a temperatura ambiente)
 - 1 taza de azúcar blanca
 - 1 taza de azúcar morena
-- 2 huevos
+- 4 huevos
 - 2 cucharaditas de extracto de vainilla
 - 3 tazas de harina de trigo
 - 1 cucharadita de bicarbonato de sodio
